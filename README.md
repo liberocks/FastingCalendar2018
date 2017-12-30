@@ -32,6 +32,6 @@ Jazakumullahu khairan katsiran.
 *NB:*
 
 1. This calendar is only a prediction. If you find any unmatch date, please adjust with the correct one.
-2. If you have issues related to this, please kindly contact me via (www.github.com/linerocks/FastingCalendar2018)[www.github.com/linerocks/FastingCalendar2018]
+2. If you have issues related to this, please kindly contact me at issues tab
 
 
