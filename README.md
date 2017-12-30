@@ -25,5 +25,6 @@ PDF : [https://goo.gl/EDbgmk](https://goo.gl/EDbgmk)
 
 May Allah grant us ease to do good deeds and accept our good deeds. There is no power and no strength except with Allah. Feel free to share to relatives and family.
 
+Jazakumullahu khairan katsiran.
 
 
