@@ -28,3 +28,10 @@ May Allah grant us ease to do good deeds and accept our good deeds. There is no 
 Jazakumullahu khairan katsiran.
 
 
+
+*NB:*
+
+1. This calendar is only a prediction. If you find any unmatch date, please adjust with the correct one.
+2. If you have issues related to this, please kindly contact me via (www.github.com/linerocks/FastingCalendar2018)[www.github.com/linerocks/FastingCalendar2018]
+
+
